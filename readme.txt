@@ -1,2 +1,3 @@
 Dragan Paripovic
-OŠ "Sveti Sava" Čačak
+26.03.1982.
+OS "Sveti Sava" Cacak
